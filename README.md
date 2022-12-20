@@ -1,3 +1,4 @@
 # Hello, World!
-This is Lunime with an another project!
-Its kind of a blog site... bruh
+GO TO MY GITHUB 💀
+
+i just force people <3
